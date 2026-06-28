@@ -1,4 +1,4 @@
-# 
+# Ultimato bybit trading bot predefinições for Mac OS | Elite bybit trading bot predefinições for PC Windows. Featuring API de exchange centralizada and estratégia de reversão à média — optimized for maximum performance.
 
 
 
